@@ -1,3 +1,3 @@
 # Demo
 
-Im just trying to figure this shit out
+Im just trying to figure this out
